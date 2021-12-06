@@ -1,5 +1,6 @@
-### Hi there 👋
+# BLM ? No,it has nothing to do with skin color. 
 
-⚡ Fun fact: 
+> BLM is nothing more than a terrorist organization
 
-[![Glass Heart](https://github.com/DanaCoding/DanaCoding/blob/main/glass%20heart.png)](https://www.youtube.com/watch?v=-Rp7UPbhErE)
+https://user-images.githubusercontent.com/93444868/144928407-64cd7e14-3bad-4122-84dc-a68e8bec391c.mp4
+
